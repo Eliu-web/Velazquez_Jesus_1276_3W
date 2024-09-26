@@ -10,3 +10,11 @@ Punto 4
 ![image](https://github.com/user-attachments/assets/ee3f22f7-33df-48b2-a1ef-77e8f62a1371)
 
 ![image](https://github.com/user-attachments/assets/8d7bb188-8e90-4dd2-8228-e4555f3d68ab)
+
+punto 5
+
+![image](https://github.com/user-attachments/assets/880fe1d0-aba2-433a-bd85-dc149362be05)
+
+![image](https://github.com/user-attachments/assets/818904ef-ea98-422a-93c6-f1ed0be0a0f9)
+
+punto 6
