@@ -19,6 +19,13 @@ punto 5
 
 punto 6
 
+
+![{D98104CD-3E52-4738-9612-7F652954B8FD}](https://github.com/user-attachments/assets/26b34200-d325-41f5-ab27-70e8673b1e68)
+
+![image](https://github.com/user-attachments/assets/09bbb93a-c43b-45fd-b5f0-9e646bc5ebd6)
+
+
+punto 7 y 8
 ![image](https://github.com/user-attachments/assets/a521f260-fca0-43a6-8f44-a28558135618)
 
 ![image](https://github.com/user-attachments/assets/ffc048b7-0c73-461e-b929-d76abd1d83be)
