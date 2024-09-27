@@ -1,5 +1,6 @@
 # Velazquez_Mares_Jesus_Eliu_1276_3W
 Examen primer parcial 3W
+
 Punto 1, 2 , 3
 
 ![image](https://github.com/user-attachments/assets/d4c01c96-b923-4509-9b7c-12e83bee63a1)
@@ -30,3 +31,10 @@ Punto 7 y 8
 ![image](https://github.com/user-attachments/assets/ffc048b7-0c73-461e-b929-d76abd1d83be)
 
 Punto 9
+
+![{36E602A1-876A-4EAC-B6C8-916D1E6C4B93}](https://github.com/user-attachments/assets/33218e63-ef63-475f-be03-0f78230f96ed)
+
+![{7BF2F210-0AB0-4171-A9FD-8A049E5741A5}](https://github.com/user-attachments/assets/788036c9-ae84-413c-a5ef-fe5ff1d745ba)
+
+Punto 10
+
