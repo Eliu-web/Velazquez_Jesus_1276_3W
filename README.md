@@ -18,3 +18,7 @@ punto 5
 ![image](https://github.com/user-attachments/assets/818904ef-ea98-422a-93c6-f1ed0be0a0f9)
 
 punto 6
+
+![image](https://github.com/user-attachments/assets/a521f260-fca0-43a6-8f44-a28558135618)
+
+![image](https://github.com/user-attachments/assets/ffc048b7-0c73-461e-b929-d76abd1d83be)
