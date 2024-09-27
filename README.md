@@ -38,3 +38,7 @@ Punto 9
 
 Punto 10
 
+![{1D8CCD59-43C3-4473-A6A4-7C21BBD058D8}](https://github.com/user-attachments/assets/ce7d87ee-2dbe-4c78-91d1-29e6f7338ea0)
+
+![{B4B96A1D-D59F-42EE-8227-7F546E90A19E}](https://github.com/user-attachments/assets/df18ca31-53d9-4547-9ec8-3f6b54e9df9a)
+
